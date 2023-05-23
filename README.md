@@ -1,1 +1,1 @@
-# This website is currently UNDER CONSTRUCTION 🏗️🚧
+# UNDER CONSTRUCTION 🏗️🚧
